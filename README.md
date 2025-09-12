@@ -7,7 +7,8 @@
 </p>
 <p align="center">  
 ૮(˶˃ᆺ˂˶) #1 dandy kin and fanatic 🌱​​
-<p align="center">  
-spㅤㅤpinㅤㅤata
+  
+[ata](https://dandicus.atabook.org/)ㅤㅤ[straw](https://berrytapes.straw.page)ㅤㅤ[pin](https://br.pinterest.com/dandypilled/)
+
 <p align="center">    
 <kbd>artpilled</kbd> ​🎨​ <kbd>fruitshopper</kbd>
