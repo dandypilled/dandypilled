@@ -3,7 +3,7 @@
 <p align="center">
 ♫ㅤneumasc termsㅤㅤask for prnsㅤㅤ❀ 
 <p align="center">  
-<img src="https://media.discordapp.net/attachments/1314613314650898434/1416150790359351296/ezgif.com-effects.gif?ex=68c5ccb3&is=68c47b33&hm=519adb9192e0d26bc5f76cc0577883b14bce27e692668667e6e69d4108f59e5e&=" width="100" height="100" border="10"/> <img src="https://64.media.tumblr.com/d46cd7650e1bc15edaabfe446d488ac3/562bc653002dd72e-a9/s250x400/b30a7c5696dafba0ceea132b272c01eba101b55f.gif" width="100" height="100" border="10"/> <img src="https://files.catbox.moe/qozm7x.png" width="100" height="100" border="10"/>
+<img src="https://64.media.tumblr.com/405892dd637d818642e1225b90dd1b1b/b8102de4bd0f2d11-ae/s100x200/2f2ad217891d3c76dc0ab168c6452a4696b006c2.gifv" width="100" height="100" border="10"/> <img src="https://media.discordapp.net/attachments/1314613314650898434/1416150790359351296/ezgif.com-effects.gif?ex=68c5ccb3&is=68c47b33&hm=519adb9192e0d26bc5f76cc0577883b14bce27e692668667e6e69d4108f59e5e&=" width="100" height="100" border="10"/> <img src="https://files.catbox.moe/qozm7x.png" width="100" height="100" border="10"/>
 </p>
 <p align="center">  
 ૮(˶˃ᆺ˂˶) #1 dandy kin and fanatic 🌱​​
