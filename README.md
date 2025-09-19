@@ -1,7 +1,7 @@
 <p align="center"> 
 <img src="https://64.media.tumblr.com/2913d4ace83d1acb5a830853d8041629/e69ada103ddfcdc2-bd/s400x600/f09d6e332d444be386e74f9e0567cf2676e6aa89.gifv" width="350" height="150" border="50"/>
 <p align="center">
-αstroㅤㅤ🌈​ㅤㅤrhythɱㅤ/ㅤothers
+αstroㅤㅤ🌈​ㅤㅤtuᥒaㅤ/ㅤothers
 <p align="center">
 ♫ㅤneumasc termsㅤㅤask for prnsㅤㅤ❀ 
 <p align="center">  
