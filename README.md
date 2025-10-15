@@ -11,7 +11,7 @@
 ૮(˶˃ᆺ˂˶) #1 dandy kin and fanatic 🌱​​
 
  ⠀⠀⠀<p align="center">  
-[ata](https://dandicus.atabook.org/)ㅤㅤ[straw](https://berrytapes.straw.page)ㅤㅤ[pin](https://br.pinterest.com/dandypilled/)
+[ata](https://dandicus.atabook.org/)ㅤㅤ[straw](https://creepycute.straw.page)ㅤㅤ[pin](https://br.pinterest.com/dandypilled/)
 </p>
 <p align="center">    
 <kbd>artpilled</kbd> ​🎨​ <kbd>kawaiimaxxing</kbd>
