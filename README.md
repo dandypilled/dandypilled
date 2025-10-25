@@ -3,7 +3,7 @@
 <p align="center">
 αstroㅤㅤ🌈​ㅤㅤdandyㅤ/ㅤothers
 <p align="center">
-♫ㅤneumasc termsㅤㅤask for prnsㅤㅤ❀ 
+♫ㅤneumascfem termsㅤㅤnone/any/all prnsㅤㅤ❀ 
 <p align="center">  
 <img src="https://64.media.tumblr.com/405892dd637d818642e1225b90dd1b1b/b8102de4bd0f2d11-ae/s100x200/2f2ad217891d3c76dc0ab168c6452a4696b006c2.gifv" width="100" height="100" border="10"/> <img src="https://files.catbox.moe/qozm7x.png" width="100" height="100" border="10"/>
 </p>
