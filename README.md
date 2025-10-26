@@ -11,7 +11,7 @@
 ૮(˶˃ᆺ˂˶) #1 dandy kin and fanatic 🌱​​
 
  ⠀⠀⠀<p align="center">  
-[strawpage](https://creepycute.straw.page)ㅤㅤ[pinterest](https://br.pinterest.com/dandypilled/)
+[strawpage](https://wiltedplants.straw.page)ㅤㅤ[pinterest](https://br.pinterest.com/dandypilled/)
 </p>
 <p align="center">    
 <kbd>artpilled</kbd> ​🎨​ <kbd>artmaxxing</kbd>
