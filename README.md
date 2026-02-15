@@ -1,7 +1,7 @@
 <p align="center"> 
 <img src="https://64.media.tumblr.com/0242247fc1d75ebc3fae8f844d523382/8cace9f7d15969e8-41/s250x400/2d5105133fe2a48a6f019778668be8e580a5a161.png" width="350" height="150" border="50"/>
 <p align="center">
-dandyㅤㅤ🍰​​ㅤㅤRㅤ
+dandyㅤㅤ🍰​​ㅤㅤbonnieㅤ
 <p align="center">
 ♫ㅤneu termsㅤㅤno pronounsㅤㅤ❀ 
 <p align="center">  
