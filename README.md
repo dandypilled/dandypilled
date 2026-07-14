@@ -1,6 +1,8 @@
 <p align="center"> 
-$${\color{red}D\space\color{orange}a\space\color{Yellow}n\space\color{Green}d\space\color{blue}y}$$ㅤㅤㅤ✿ㅤㅤㅤ
-$${\color{red}G\space\color{orange}r\space\color{Yellow}a\space\color{Green}v\space\color{blue}e\space\color{purple}y\space\color{magenta}a\space\color{pink}r\space\color{red}d}$$
+$${\color{#e0503f}D\space\color{#fd9c53}a\space\color{#e7e68d}n\space\color{#c9c960}d\space\color{#a98d99}y}$$ㅤㅤㅤ✿ㅤㅤㅤ
+$${\color{#e0503f}G\space\color{#fd9c53}r\space\color{#e7e68d}a\space\color{#c9c960}v\space\color{#c9c960}e\space\color{#a98d99}y\space\color{#d16d81}a\space\color{#e0503f}r\space\color{#f37769}d}$$
+
+
 
 <p align="center"> 
 (¬`‸´¬)
