@@ -1,2 +1,5 @@
 <p align="center"> 
-wip yeah
+𝒟andყㅤㅤㅤ✿ㅤㅤㅤ𝐿arӃ
+
+<p align="center"> 
+ㅤ(¬`‸´¬)
