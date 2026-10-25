@@ -6,7 +6,7 @@
   <table>
 <tr>
 <th>
-      dni ﹔ t.r.a.s.h. , pro/darkship , weirdos
+      dni ﹔ t.r.a.s.h. , pro/darkship , pro-paraphiles , weirdos
 </th>
 </tr>
   </div> 
