@@ -2,5 +2,11 @@
 <p align="center"> yume ⠀⠀꒰⸝⸝◡.◡꒱⠀⠀fictkin⠀⠀<img src="https://files.catbox.moe/bmjndk.gif">
 <p align="center"> <img src="https://files.catbox.moe/nlbme9.gif"> <img src="https://files.catbox.moe/aa6pyi.gif">
   
-<p align="center"> dni basic crit (pro / darkship included), weirdos in general
-<p align="center"> i dont support qwelver if you care
+  <div align="center"> 
+  <table>
+<tr>
+<th>
+      dni  basic crit . pro/darkship + weirdos
+</th>
+</tr>
+  </div> 
