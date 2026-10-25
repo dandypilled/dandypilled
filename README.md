@@ -1,10 +1,2 @@
-<p align="center"> 
-
 <p align="center"> dandy ⠀⠀<img src="https://files.catbox.moe/dtpcid.gif">⠀⠀⠀+⠀⠀⠀ask me
-
-<p align="center">   
-<img src="https://files.catbox.moe/07cfmo.webp">  <img src="https://files.catbox.moe/ig9jqj.webp">
-
-
-  
-
+<p align="center"> yume ⠀⠀꒰⸝⸝◡.◡꒱⠀⠀fictkin⠀⠀
