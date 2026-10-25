@@ -6,7 +6,7 @@
   <table>
 <tr>
 <th>
-      dni  basic crit . pro/darkship + weirdos
+      dni ﹔ t.r.a.s.h. , pro/darkship , weirdos
 </th>
 </tr>
   </div> 
