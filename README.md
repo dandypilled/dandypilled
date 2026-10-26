@@ -11,4 +11,4 @@
 </tr>
   </div>
 <p align="center">    
- <a href="https://dandy.atabook.org/">ata</a>  <a href="https://rentry.co/dandicus">rentry</a>
+ <a href="https://dandy.atabook.org/">ata</a>  <a href="https://rentry.co/dandypilled">rentry</a>
