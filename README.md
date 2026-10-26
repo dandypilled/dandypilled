@@ -9,4 +9,6 @@
       dni ﹔ t.r.a.s.h. , pro/darkship , pro-paraphilias , weirdos
 </th>
 </tr>
-  </div> 
+  </div>
+<p align="center">    
+ <a href="https://dandy.atabook.org/">ata</a>  <a href="https://rentry.co/sproutie">rentry</a>
