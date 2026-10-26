@@ -12,3 +12,10 @@
   </div>
 <p align="center">    
  <a href="https://dandy.atabook.org/">atabook</a>  ⠀⠀<img src="https://files.catbox.moe/g8017h.png">  ⠀⠀<a href="https://rentry.co/dandypilled">rentry</a>
+
+<details> ill try to be active on pony again oka? 
+<p align="center"> i sit on random places around the map! sometimes ill be with my partner
+<p align="center"> very rarely with other people but im *not* scary hi lets chat
+  
+<summary align="center"> i like dandy. a lot. if you wcouldnt tell </summary>
+  <div align="center">
