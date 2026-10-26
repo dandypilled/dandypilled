@@ -15,7 +15,7 @@
   </div>
 
 <p align="center"> 
-<details> ill try to be active on pony again oka? 
+<details> ill try to be active on pony.town again oka? 
 <p align="center"> i sit on random places around the map! sometimes ill be with my partner
 <p align="center"> very rarely with other people but im *not* scary hi lets chat
   <div align="center">
