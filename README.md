@@ -16,6 +16,5 @@
 <details> ill try to be active on pony again oka? 
 <p align="center"> i sit on random places around the map! sometimes ill be with my partner
 <p align="center"> very rarely with other people but im *not* scary hi lets chat
-  
-<summary align="center"> i like dandy. a lot. if you wcouldnt tell </summary>
+<summary align="center"></summary>
   <div align="center">
