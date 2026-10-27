@@ -16,6 +16,6 @@
 
 <p align="center"> 
 <details> ill try to be active on pony.town again oka? 
-<p align="center"> i sit on random places around the map! sometimes ill be with my partner
-<p align="center"> very rarely with other people but im *not* scary hi lets chat
+<p align="center"> i sit on random places around the map 
+<p align="center"> im not a social butterfly (unfortunately) and i get sick of human interaction quickly Ok
   <div align="center">
