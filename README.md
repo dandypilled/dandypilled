@@ -14,8 +14,8 @@
 </tr>
   </div>
 
-<p align="center"> 
-<details> ill try to be active on pony.town again oka? 
-<p align="center"> i sit on random places around the map 
-<p align="center"> im not a social butterfly (unfortunately) and i get sick of human interaction quickly Ok
-  <div align="center">
+<h5 align="center">
+<details>
+  <summary>⠀Ƹ̵̡⁠Ӝ̵̨̄⁠Ʒ </summary>
+  <table align="center"><caption>
+    <tr><td align="center">
