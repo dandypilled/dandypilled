@@ -8,6 +8,6 @@
  <div align="center"> <details>
 <summary>hi</summary>
    
-<a href="https://github.com/livingforest">@hil</a>　 <a href="https://github.com/rickgriimes">@gak</a>　<a href="https://github.com/persona3reload">@remi</a>　<a href="https://github.com/cutegirlsnearyou">@luci</a>
+<a href="https://github.com/livingforest">@hilda</a>　 <a href="https://github.com/rickgriimes">@gackt</a>　<a href="https://github.com/persona3reload">@remi</a>　<a href="https://github.com/cutegirlsnearyou">@luci</a>
 
 </details> </p>
