@@ -6,7 +6,7 @@
 </details> </p>
 
  <div align="center"> <details>
-<summary>（• ˕ •マ}</summary>
+<summary>（• ˕ •マ</summary>
    
 ![pawsome people](https://github-colored-text-fn3z.vercel.app/api/index?text=pawsome+people&color=c35a1a&width=150&fontSize=17&height=20.4) 
 
