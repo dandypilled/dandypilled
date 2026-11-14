@@ -7,6 +7,6 @@
 
  <div align="center"> <details>
 <summary>（• ˕ •マ</summary>
-<p align="center">  <a href="https://github.com/livingforest">@hil</a>　 <a href="https://github.com/rickgriimes">@gak</a>　@remi　@luci
+<p align="center">  <a href="https://github.com/livingforest">@hil</a>　 <a href="https://github.com/rickgriimes">@gak</a>　<a href="https://github.com/persona3reload">@remi</a>　<a href="https://github.com/cutegirlsnearyou">@luci</a>
 
 </details> </p>
