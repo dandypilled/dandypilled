@@ -8,7 +8,7 @@
  <div align="center"> <details>
 <summary>（• ˕ •マ}</summary>
    
-![my pawsome friends](https://github-colored-text-fn3z.vercel.app/api/index?text=my+pawsome+friends&color=c35a1a&width=150&fontSize=17&height=20.4) 
+![pawsome people](https://github-colored-text-fn3z.vercel.app/api/index?text=my+pawsome+friends&color=c35a1a&width=150&fontSize=17&height=20.4) 
 
 <a href="https://github.com/livingforest">@hil</a>　 <a href="https://github.com/rickgriimes">@gak</a>　<a href="https://github.com/persona3reload">@remi</a>　<a href="https://github.com/cutegirlsnearyou">@luci</a>
 
