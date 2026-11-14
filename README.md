@@ -1,4 +1,4 @@
-<p align="center"> im working on it cuh
+<p align="center"> this is pissing me off
   
  <div align="center"> <details>
 <summary>DNI</summary>
@@ -6,7 +6,7 @@
 </details> </p>
 
  <div align="center"> <details>
-<summary>（• ˕ •マ</summary>
+<summary>hi</summary>
    
 <a href="https://github.com/livingforest">@hil</a>　 <a href="https://github.com/rickgriimes">@gak</a>　<a href="https://github.com/persona3reload">@remi</a>　<a href="https://github.com/cutegirlsnearyou">@luci</a>
 
