@@ -7,5 +7,6 @@
 
  <div align="center"> <details>
 <summary>（• ˕ •マ</summary>
-<p align="center"> @hil　@gak　@remi　@luci
+<p align="center">  <a href="https://github.com/livingforest">@hil</a>　 <a href="https://github.com/rickgriimes">@gak</a>　@remi　@luci
+
 </details> </p>
