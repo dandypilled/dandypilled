@@ -2,5 +2,5 @@
   
 <p align="center"> <details>
 <summary>DNI</summary>
-<p align="center"> dni <a href="https://dni-criteria.carrd.co/">basic criteria</a>, pro/darkship, lolisho I HATE ALL OF YOU
+<p align="center"> <a href="https://dni-criteria.carrd.co/">basic criteria</a>, pro/darkship, lolisho I HATE ALL OF YOU
 </details> </p>
