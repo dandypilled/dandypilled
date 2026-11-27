@@ -2,6 +2,6 @@
   
  <div align="center"> <details>
 <summary>DNI</summary>
-<p align="center"> <a href="https://dnilistever.straw.page">FULLIST</a> (bare minimum)
+<p align="center"> <a href="https://dnilistever.straw.page">FULL LIST</a> (bare minimum)
 </details> </p>
 
